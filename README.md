@@ -1,4 +1,4 @@
-****👋 Hi, I’m David Li from Vancouver, BC, Canada****
+****👋 Hi, I’m Zhiyong (David) Li from Vancouver, BC, Canada****
 
 **About Me**
 
