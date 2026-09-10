@@ -1,4 +1,4 @@
-### 👋 Hi, I'm Zhiyong (David) Li
+### 👋 Hi, I'm David
 
 **What I do**
 
